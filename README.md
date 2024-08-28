@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Thuan-k19
+- 👀 I’m interested in football, badminton, watching sport, esport
+- 🌱 I’m currently learning IC at University of Information Technology
+- 📫 My Instagram : mthuan.uit
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I am UITer K19
